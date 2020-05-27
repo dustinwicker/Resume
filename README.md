@@ -1,1 +1,1 @@
-![Resume Page 1](https://octodex.github.com/images/yaktocat.png)
+![Resume Page 1](Resume%20-%20Dustin%20Wicker-1.png)
