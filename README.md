@@ -1,1 +1,1 @@
-My up-to-date resume in PDF and DOCX form.
+![Resume](‎⁨/Users/dustinwicker/Desktop/Resume/Resume - Dustin Wicker.pdf)
